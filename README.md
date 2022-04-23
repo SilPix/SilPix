@@ -1,4 +1,4 @@
-- Greetings, I’m known as SilentPixel(@SilPix)
+- Sup, they know me as SilentPixel(@SilPix)
 - 👀 I’m interested in Game Dev
 - 🌱 I’m currently learning All Languages
 - 🤝 I’m looking to collaborate on interesting projects
